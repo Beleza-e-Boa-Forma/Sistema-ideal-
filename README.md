@@ -1,2 +1,2 @@
 # Sistema-ideal-
-Vestuário e acessórios para inverno 
+Vestuários e acessórios para inverno 
